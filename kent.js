@@ -1,1 +1,3 @@
-vfvbv
+function nig() {
+    jfslkdfaj
+}
